@@ -11,3 +11,4 @@ Ein Dämon, der vom Säuglingsalter auferstanden ist, nachdem er von den Nazis b
 
 > "I'll Always Look This Good."
 
+<img src="https://www.looper.com/img/gallery/the-untold-truth-of-hellboy/intro-1552678673.jpg" />
