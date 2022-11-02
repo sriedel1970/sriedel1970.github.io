@@ -10,3 +10,4 @@ Ein Dämon, der vom Säuglingsalter auferstanden ist, nachdem er von den Nazis b
 * ist brutal zynisch --> irre komisch
 
 > "I'll Always Look This Good."
+
